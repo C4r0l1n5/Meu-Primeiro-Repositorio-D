@@ -1,4 +1,4 @@
-# OLá (clique aqui se quier saber sobre mim)
+# OLá (clique aqui se quiser saber sobre mim)
 
 Meu nome é Tobi (apelido), 
 Sou estudante no PR,
